@@ -6,7 +6,7 @@
 [TAP HERE OPEN LUCKY MD V5](https://github.com/Fred1e/LUCKY_MD)
 
 
-[TAP HERE FOR FULL INFO](https://github.com/Fred1e/FREDI-EZRA-INFO)
+[TAP HERE FOR FULL INFO](https://github.com/Fred1e)
 
 <img src="https://i.imgur.com/dBaSKWF.gif" height="20" width="100%">
 

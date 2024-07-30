@@ -6,7 +6,12 @@
 [TAP HERE OPEN LUCKY MD V5](https://github.com/Fred1e/LUCKY_MD)
 
 
+[TAP HERE OPEN FRECYBER MD](https://github.com/Frecyber/FRECYBER-MD) 
+
+
 [TAP HERE FOR FULL INFO](https://github.com/Fred1e)
+
+[TAP HERE FOR FULL INFO ABOUT FRECYBER](https://github.com/FRECYBER) 
 
 <img src="https://i.imgur.com/dBaSKWF.gif" height="20" width="100%">
 

@@ -9,7 +9,7 @@
 [TAP HERE OPEN FRECYBER MD](https://github.com/Frecyber/FRECYBER-MD) 
 
 
-[TAP HERE FOR FULL INFO](https://github.com/Fred1e)
+[TAP HERE FOR FULL INFO](https://github.com/Fred1e/FREDIETECH-INFO/tree/main)
 
 [TAP HERE FOR FULL INFO ABOUT FRECYBER](https://github.com/FRECYBER) 
 
